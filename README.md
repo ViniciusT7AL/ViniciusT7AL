@@ -9,8 +9,3 @@ Meu nome é Vinícius
 ### Você entrar em contato comigo 📪
 
 00001062306880sp@al.educacao.sp.gov.br
-
-
-
-
-https://media1.tenor.com/m/G_gULFeh1S0AAAAC/abi-arena-breakout.gif
